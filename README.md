@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @SwagBoii
+- 👀 I'm interested on p*ssy
+- 🌱 I'm currently learning Java at school
+- 📫 How to reach me, ig: @steefanocagnoni
